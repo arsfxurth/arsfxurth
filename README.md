@@ -8,6 +8,5 @@
 
 ![shadow-fiend](https://github.com/arsfxurth/arsfxurth/assets/144032208/f0e71b06-8d9e-4326-ae62-790875606798)
 
-![Uploading zxcursed.gif…]()
 
 
